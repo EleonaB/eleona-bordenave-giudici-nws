@@ -8,10 +8,17 @@
 
 ### 🚀 Qui suis-je ?
 
-#### blablabla
+##### *"Je pense, donc je suis (cogito, ergo sum)"* **René Descartes - Discours de la méthode (1637)**
+
+#### Sur un ton moins phiolophique, et maintenant que je suis sûre d'exister, comment me definir ? 
+Je suis une personne passionée, animée par une curiosité insatiable, qui me pousse à explorer, découvrir et ...
 
 ### Quelques vérités cartésiennes
-#### âge - passion - étude et alternance
+
+* 👩🏼 23 ans d'experiences dans la vie
+* 📍 Habite en Normandie
+*  📚 Etudiante à la Normandie Web School
+*  ☕ En alternace à Coffea
 
 ### 🎯 Mes motivations
 
@@ -42,7 +49,7 @@ Ces expériences m'ont permis d’acquérir une **capacité d’adaptation** et 
 Confrontée au *« vrai »* monde du travail et non à celui que j’imaginais, je me suis rendu compte que mes études de départ ne correspondaient pas du tout avec ce que je voulais faire de ma vie. 
 
 ### C’est l’esprit clair, forte de mes expériences passées et **déterminée** à me lancer dans un métier de ❤️ que je décide de commencer des études à la *Normandie web School*.
-##### *Il n'est jamais trop tard pour devenir ce que nous aurions pu être"* **Georgue Eliot**
+##### *"Derrière chaque tempête se cache un arc en ciel"* **Sid - L'âge de glace 4 (2012)**
 
 #### ce que je veux apprendre à l'école, mes ambitions et ce que je veux faire plus tard.
 
