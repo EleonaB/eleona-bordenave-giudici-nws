@@ -3,11 +3,23 @@
 # PHOTO BANDEROLLE 
 
 ## INTRODUCTION
+
 ##### *Bienvenue sur mon Readme* 👋🏻
 
 ### 🚀 Qui suis-je ?
 
-####
+#### blablabla
+
+### Quelques vérités cartésiennes
+#### âge - passion - étude et alternance
+
+### 🎯 Mes motivations
+
+* L'envie de progrésser et d'en apprendre chaque jour un peu plus
+* Me dépasser et repousser mes limites
+* Dévelloper mon esprit créatif (et mon sens critique)
+
+### 🌍 Mes valeurs
 
 ### 🎓 Parcours académique et proffessionel 
 
@@ -17,10 +29,10 @@
 
 #### Lancée sur le marché de l’emploi, j’ai occupé des postes très différents :
 
-* 🛍 La vente,
-* 👩🏼‍💼 l’accueil et l'événementiel,
-* 🍷 la restauration,
-* 🕵🏼‍♀ l'évaluation qualité (client mystère).
+* 🛍 La vente
+* 👩🏼‍💼 L’accueil et l'événementiel
+* 🍷 La restauration
+* 🕵🏼‍♀ L'évaluation qualité (client mystère)
 
 Ces expériences m'ont permis d’acquérir une **capacité d’adaptation** et une grande **polyvalence**. Elles m'ont apris la **discipline**, **l’organisation** ainsi que **la persévérance**.
 
