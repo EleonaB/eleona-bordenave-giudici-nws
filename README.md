@@ -18,7 +18,7 @@ Je suis une personne passionée, animée par une curiosité insatiable, qui me p
 * 👩🏼 23 ans d'experiences dans la vie
 * 📍 Habite en Normandie
 *  📚 Etudiante à la Normandie Web School
-*  ☕ En alternace à Coffea
+*  ☕ En alternance à Coffea
 
 ### 🎯 Mes motivations
 
