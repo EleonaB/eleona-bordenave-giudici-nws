@@ -1,4 +1,4 @@
-# **Éléona Bordenave Giudici** 
+# ** Eleona Bordenave Giudici** 
 
 # PHOTO BANDEROLLE 
 
@@ -10,8 +10,8 @@
 
 ##### *"Je pense, donc je suis (cogito, ergo sum)"* **René Descartes - Discours de la méthode (1637)**
 
-#### Sur un ton moins phiolophique, et maintenant que je suis sûre d'exister, comment me definir ? 
-Je suis une personne passionée, animée par une curiosité insatiable, qui me pousse à explorer, découvrir et ...
+#### Sur un ton moins phiolophique, et maintenant que je suis sûre d'exister, qui suis-je ? 
+Je suis une personne passionée, animée par une curiosité insatiable, qui me pousse à explorer, découvrir et élargir sans cesse mon horizon.
 
 ### Quelques vérités cartésiennes
 
@@ -48,7 +48,7 @@ Ces expériences m'ont permis d’acquérir une **capacité d’adaptation** et 
 
 Confrontée au *« vrai »* monde du travail et non à celui que j’imaginais, je me suis rendu compte que mes études de départ ne correspondaient pas du tout avec ce que je voulais faire de ma vie. 
 
-### C’est l’esprit clair, forte de mes expériences passées et **déterminée** à me lancer dans un métier de ❤️ que je décide de commencer des études à la *Normandie web School*.
+#### C’est l’esprit clair, forte de mes expériences passées et **déterminée** à me lancer dans un métier de ❤️ que je décide de commencer des études à la *Normandie web School*.
 ##### *"Derrière chaque tempête se cache un arc en ciel"* **Sid - L'âge de glace 4 (2012)**
 
 #### ce que je veux apprendre à l'école, mes ambitions et ce que je veux faire plus tard.
