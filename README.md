@@ -8,7 +8,7 @@
 
 ### 🚀 Qui suis-je ?
 
-##### *"Je pense, donc je suis (cogito, ergo sum)"* **René Descartes - Discours de la méthode (1637)**
+##### *"Je pense, donc je suis (cogito, ergo sum)"* _**René Descartes - Discours de la méthode (1637)**_
 
 #### Sur un ton moins phiolophique, et maintenant que je suis sûre d'exister, qui suis-je ? 
 Je suis une personne passionée, animée par une curiosité qui me pousse à explorer, découvrir et élargir sans cesse mon horizon.
@@ -44,11 +44,11 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 * 🍷 La restauration
 * 🕵🏼‍♀ L'évaluation qualité (client mystère)
 
-#### Ces expériences m'ont permis d’acquérir une **capacité d’adaptation** et une grande **polyvalence**. Elles m'ont apris la **discipline**, **l’organisation** ainsi que **la persévérance**.
+#### Ces expériences m'ont permis d’acquérir une _**capacité d’adaptation**_ et une grande _**polyvalence**_. Elles m'ont apris la _**discipline**_, _**l’organisation**_ ainsi que _**la persévérance**_.
 
 #### Confrontée au _*« vrai »*_ monde du travail, je me suis rendu compte que mes études de départ ne correspondaient pas du tout avec ce que je voulais faire de ma vie. 
 
-#### C’est l’esprit clair, forte de mes expériences passées et **déterminée** à me lancer dans un métier de ❤️ que je décide de commencer des études à la _*Normandie web School*_.
+#### C’est l’esprit clair, forte de mes expériences passées et _**déterminée**_ à me lancer dans un métier de ❤️ que je décide de commencer des études à la _*Normandie web School*_.
 
 ##### *"Derrière chaque tempête se cache un arc en ciel"* **Sid - L'âge de glace 4 (2012)**
 
