@@ -32,7 +32,7 @@ Je suis une personne passionée, animée par une curiosité qui me pousse à exp
 
 ### 🎓 Parcours académique et professionel 
 
-#### Juin 2019, le bac en poche, je décide de me lancer dans une licence de psychologie à l’université, disipline qui m'attirait particulièrement. A peine quelques mois après le début de mes études, nous vivons une crise mondiale : *La Covid*. 👩🏼‍⚕
+#### **Juin 2019, le bac en poche, je décide de me lancer dans une licence de psychologie à l’université, disipline qui m'attirait particulièrement. A peine quelques mois après le début de mes études, nous vivons une crise mondiale : _La Covid_.** 👩🏼‍⚕
 
 #### Forcée de commencer à travailler je n'ai plus de temps à accorder à mes études que je finis, inévitablement par arrêter.
 Lancée sur le marché de l’emploi, j’ai occupé des postes divers et variés :
@@ -42,7 +42,7 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 * 🍷 La restauration
 * 🕵🏼‍♀ L'évaluation qualité (client mystère)
 
-#### Ces expériences m'ont permis d’acquérir une **capacité d’adaptation** et une grande **polyvalence**. Elles m'ont apris la **discipline**, **l’organisation** ainsi que **la persévérance**.
+#### **Ces expériences m'ont permis d’acquérir une _capacité d’adaptation_ et une grande _polyvalence_. Elles m'ont apris la _discipline_, _l’organisation_ ainsi que _la persévérance_.**
 
 #### Confrontée au _*« vrai »*_ monde du travail, je me suis rendu compte que mes études de départ ne correspondaient pas du tout avec ce que je voulais faire de ma vie. 
 
