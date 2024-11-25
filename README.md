@@ -4,8 +4,6 @@
 
 ## INTRODUCTION
 
-##### 👋🏻 *Bienvenue à toi visiteur, que la force soit avec toi* 
-
 ### 🚀 Qui suis-je ?
 
 ##### *"Je pense, donc je suis (cogito, ergo sum)"* **René Descartes - Discours de la méthode (1637)**
