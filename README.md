@@ -9,7 +9,6 @@
 ### 🚀 Qui suis-je ?
 
 ##### *"Je pense, donc je suis (cogito, ergo sum)"* **René Descartes - Discours de la méthode (1637)**
-
 #### Sur un ton moins phiolophique, et maintenant que je suis sûre d'exister, qui suis-je ? 
 Je suis une personne passionée, animée par une curiosité qui me pousse à explorer, découvrir et élargir sans cesse mon horizon.
 
