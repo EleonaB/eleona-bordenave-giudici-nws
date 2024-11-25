@@ -34,7 +34,7 @@ Je suis une personne passionée, animée par une curiosité qui me pousse à exp
 
 ### 🎓 Parcours académique et professionel 
 
-#### Juin 2019, le bac en poche, je décide de me lancer dans une licence de psychologie à l’université, disipline qui m'attirait particulièrement. A peine quelques mois après le début de mes études, nous vivons une crise mondiale : _*La Covid*_. 👩🏼‍⚕
+#### Juin 2019, le bac en poche, je décide de me lancer dans une licence de psychologie à l’université, disipline qui m'attirait particulièrement. A peine quelques mois après le début de mes études, nous vivons une crise mondiale : *La Covid*. 👩🏼‍⚕
 
 #### Forcée de commencer à travailler je n'ai plus de temps à accorder à mes études que je finis, inévitablement par arrêter.
 Lancée sur le marché de l’emploi, j’ai occupé des postes divers et variés :
