@@ -50,7 +50,7 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 
 ##### *"Derrière chaque tempête se cache un arc en ciel"* **Sid - L'âge de glace 4 (2012)**
 
-#### ce que je veux apprendre à l'école, mes ambitions et ce que je veux faire plus tard.
+#### Ce que je veux apprendre à l'école, mes ambitions et ce que je veux faire plus tard.
 
 ### PHOTO QUALITE - DEFAUT
 
