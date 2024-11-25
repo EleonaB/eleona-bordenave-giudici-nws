@@ -4,7 +4,7 @@
 
 ## INTRODUCTION
 
-##### *Bienvenue sur mon Readme* 👋🏻
+##### 👋🏻 *Bienvenue à toi visiteur, que la force soit avec toi* 
 
 ### 🚀 Qui suis-je ?
 
