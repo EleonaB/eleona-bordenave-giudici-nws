@@ -52,7 +52,7 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 
 #### Ce que je veux apprendre à l'école, mes ambitions et ce que je veux faire plus tard.
 
-### PHOTO QUALITE - DEFAUT
+![ELEONA BORDENAVE GIUDICI (2)](https://github.com/user-attachments/assets/7c1a0cb9-9ac4-4c2f-b037-77036612d961)
 
 ### ⭐️ Mes projets
 
