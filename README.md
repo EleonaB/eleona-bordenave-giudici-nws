@@ -1,6 +1,6 @@
 # **Eleona Bordenave Giudici** 
 
-# PHOTO BANDEROLLE 
+![Uploading ELEONA BORDENAVE GIUDICI (1).jpg…]()
 
 ## INTRODUCTION
 
