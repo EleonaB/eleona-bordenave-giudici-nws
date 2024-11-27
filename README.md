@@ -1,6 +1,6 @@
 # **Eleona Bordenave Giudici** 
 
-![Uploading ELEONA BORDENAVE GIUDICI (1).jpg…]()
+![ELEONA BORDENAVE GIUDICI (1)](https://github.com/user-attachments/assets/05b17777-7e0f-499c-be4d-5b879050c093)
 
 ## INTRODUCTION
 
