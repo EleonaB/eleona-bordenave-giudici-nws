@@ -57,3 +57,5 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 ### ⭐️ Mes projets
 
 #### blablabla
+
+![ELEONA BORDENAVE GIUDICI (3)](https://github.com/user-attachments/assets/950bae3f-beb3-4074-bd00-8eb7caf08d68)
