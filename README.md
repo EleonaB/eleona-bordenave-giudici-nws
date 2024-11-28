@@ -50,7 +50,16 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 
 ##### *"Derrière chaque tempête se cache un arc en ciel"* **Sid - L'âge de glace 4 (2012)**
 
-#### Ce que je veux apprendre à l'école, mes ambitions et ce que je veux faire plus tard.
+#### Un nouveau chapitre de ma vie s'ouvre maintenant, 
+
+### ✒ Ce que je vais apprendre :
+
+* Develloppement web
+* Marketing digital
+* Communication graphique
+* Communication digital
+
+#### Mon projet n'est pas encore complétement défini, je suis encore hésitante sur 
 
 ### ⭐️ Mes projets
 
