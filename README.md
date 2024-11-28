@@ -44,6 +44,8 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 
 #### **Ces expériences m'ont permis d’acquérir une _capacité d’adaptation_ et une grande _polyvalence_. Elles m'ont apris la _discipline_, _l’organisation_ ainsi que _la persévérance_.**
 
+![ELEONA BORDENAVE GIUDICI (4)](https://github.com/user-attachments/assets/f5533540-29fc-4e11-b0b8-6aca376f99a4)
+
 #### Confrontée au _*« vrai »*_ monde du travail, je me suis rendu compte que mes études de départ ne correspondaient pas du tout avec ce que je voulais faire de ma vie. 
 
 #### C’est l’esprit clair, forte de mes expériences passées et **déterminée** à me lancer dans un métier de ❤️ que je décide de commencer des études à la *Normandie web School*.
