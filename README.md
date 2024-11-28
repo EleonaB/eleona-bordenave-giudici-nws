@@ -1,4 +1,4 @@
-# **Eleona Bordenave Giudici** 
+# **ELEONA BORDENAVE GIUDICI** 
 
 ![ELEONA BORDENAVE GIUDICI (1)](https://github.com/user-attachments/assets/05b17777-7e0f-499c-be4d-5b879050c093)
 
@@ -52,10 +52,8 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 
 #### Ce que je veux apprendre à l'école, mes ambitions et ce que je veux faire plus tard.
 
-![3_20241124_142651_0002](https://github.com/user-attachments/assets/6f32130d-80b9-4037-8238-4432c667c8e3)
-
 ### ⭐️ Mes projets
 
 #### blablabla
 
-![ELEONA BORDENAVE GIUDICI (3)](https://github.com/user-attachments/assets/950bae3f-beb3-4074-bd00-8eb7caf08d68)
+![3_20241124_142651_0002](https://github.com/user-attachments/assets/6f32130d-80b9-4037-8238-4432c667c8e3)
