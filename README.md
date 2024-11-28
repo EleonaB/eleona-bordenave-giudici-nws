@@ -25,6 +25,8 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 * 👩🏼‍💼 L’accueil et l'événementiel
 * 🍷 La restauration
 * 🕵🏼‍♀ L'évaluation qualité (client mystère)
+     
+![ELEONA BORDENAVE GIUDICI_20241128_122114_0000](https://github.com/user-attachments/assets/99f4155d-d417-4431-9888-84feb7e12986)
 #### **Ces expériences m'ont permis d’acquérir une _capacité d’adaptation_ et une grande _polyvalence_. Elles m'ont appris la _discipline_, _l’organisation_ ainsi que _la persévérance_.**
 ![ELEONA BORDENAVE GIUDICI (4)](https://github.com/user-attachments/assets/f5533540-29fc-4e11-b0b8-6aca376f99a4)
 #### Confrontée au _*« vrai »*_ monde du travail, je me suis rendu compte que mes études de départ ne correspondaient pas du tout avec ce que je voulais faire de ma vie. 
