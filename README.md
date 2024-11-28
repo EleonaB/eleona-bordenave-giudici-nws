@@ -39,4 +39,6 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 * Communication graphique
 * Communication digitale
 #### Mon plan de carrière n'est pas encore complétement défini, je suis encore hésitante sur la spécialité à choisir pour ma deuxième année. Je me laisse le temps de la réflexion, explorant les différents aspects de mes cours pour affiner mon choix.
-![3_20241124_142651_0002](https://github.com/user-attachments/assets/6f32130d-80b9-4037-8238-4432c667c8e3)
+### ⭐ Mes projets 
+##### *"Celui qui déplace une montagne, commence par déplacer de petites pierres"* **Confucius - quelque part en 551 avant JC**
+[def]: https://github.com/user-attachments/assets/6f32130d-80b9-4037-8238-4432c667c8e3
