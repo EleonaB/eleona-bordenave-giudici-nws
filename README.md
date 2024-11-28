@@ -8,7 +8,7 @@ Je suis une personne passionnée, animée par une curiosité qui me pousse à ex
 * 👩🏼 23 ans d'expériences dans la vie
 * 📍 Habites en Normandie
 *  📚 Étudiante à la Normandie Web School
-*  ☕ En alternance à Coffea Les Halles
+*  ☕ En alternance à Coffea Les Halles.
 ### 🎯 Mes motivations
 * L'envie de progresser et d'en apprendre chaque jour un peu plus
 * Me dépasser et repousser mes limites
