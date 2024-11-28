@@ -27,8 +27,8 @@ Lancée sur le marché de l’emploi, j’ai occupé des postes divers et varié
 * 🕵🏼‍♀ L'évaluation qualité (client mystère)
      
 ![ELEONA BORDENAVE GIUDICI_20241128_122114_0000](https://github.com/user-attachments/assets/99f4155d-d417-4431-9888-84feb7e12986)
-Ces expériences m'ont permis d’acquérir une capacité d’adaptation et une grande polyvalence. Elles m'ont appris la discipline, l’organisation ainsi que la persévérance.
 ![ELEONA BORDENAVE GIUDICI (4)](https://github.com/user-attachments/assets/f5533540-29fc-4e11-b0b8-6aca376f99a4)
+     
 Confrontée au _*« vrai »*_ monde du travail, je me suis rendu compte que mes études de départ ne correspondaient pas du tout avec ce que je voulais faire de ma vie. 
 C’est l’esprit clair, forte de mes expériences passées et déterminée à me lancer dans un métier de ❤️ que je décide de commencer des études à la Normandie web School.
 ##### *"Derrière chaque tempête, se cache un arc en ciel"* **Sid - L'âge de glace 4 (2012)**
@@ -46,4 +46,5 @@ Dans le cadre de mon alternance j'ai pu effectuer différents projets :
 * Création et gestion d'un compte tiktok pour la boutique
 * Participation à l'organisation d'événements
 * Elaboration de comptes rendus (CA, objectifs, mise en place, fréquentation, etc)
+   
 ![3_20241124_142651_0002 (1)](https://github.com/user-attachments/assets/adcce09b-7124-4b0a-bae3-7a5f510fbe0a)
